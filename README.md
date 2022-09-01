@@ -1,0 +1,1 @@
+# diagaku-info
